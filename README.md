@@ -1,1 +1,1 @@
-# doytsujin-com.github.io-
+# doytsujin-com.github.io
